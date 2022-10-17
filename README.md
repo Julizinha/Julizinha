@@ -1,8 +1,8 @@
 ### SOBRE MIM
-- 👋 olá,meu nome de usuario é @Julizinha
-- :+1: 👀 meu email de contato é juliana.rezende.luiz@escola.pr.gov.br📨
-- 🌱 eu estou interessado em aprender a progamar novas linguagem
-- 💞️ eu estou aprendendo,a progamar recentimente
+- 👋 Olá,meu nome de usuario é @Julizinha
+- :+1: 👀 Meu email de contato é juliana.rezende.luiz@escola.pr.gov.br📨
+- 🌱 Eu estou interessado em aprender a progamar novas linguagem
+- 💞️ Eu estou aprendendo,a progamar recentimente
 - 16y😁
 - Gosto de judô 🤼
 - Tenho uma calopsita 😚
